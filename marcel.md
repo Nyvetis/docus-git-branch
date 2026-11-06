@@ -1,1 +1,1 @@
-Marcel est trop fort
+Marcel est trop fort, même plus fort que Cynthia
